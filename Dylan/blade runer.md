@@ -154,3 +154,92 @@ Student B: Tyrell Corp scientist: *"The light that burns twice as bright..."*
 3. Rewrite Rachel's test scene in 2040 using AI terminology  
 
 > "The light that burns twice as bright burns half as long." - Dr. Eldon Tyrell  
+
+---
+
+# Let's Chat About *Blade Runner*: Sci-Fi That Makes You Think!
+
+---
+
+## Part 1: The Story Made Simple (10 mins)  
+### **What's It About?**  
+Imagine **Los Angeles in 2019** - but not the real 2019! It's always rainy, full of neon signs, and flying cars called "spinners." We follow **Deckard** (Harrison Ford), a "blade runner" - basically a cop who hunts down **replicants** (/ˈrɛplɪkənts/). These are artificial humans created to work in space colonies.  
+
+Four "skin jobs" (that's slang for replicants) led by **Roy Batty** (Rutger Hauer) have escaped to Earth. Why? They want to live longer than their 4-year lifespan! Deckard meets **Rachel** (Sean Young), a special replicant who doesn't know she's artificial.  
+
+**Big Questions**:  
+- What makes someone human?  
+- Is Deckard actually a replicant too?  
+
+---
+
+## Part 2: Cool Scenes to Discuss (15 mins)  
+### **The Voight-Kampff Test**  
+Deckard tests Rachel with questions to see if she's human:  
+> *"You're reading a magazine. You see a photo of a naked woman..."*  
+> Rachel: *"Are you testing if I'm a replicant... or a lesbian?"*  
+
+**Discussion Starter**:  
+*"If you could ask one question to spot an android, what would it be?"*  
+
+### **Roy's Famous Last Words**  
+The best scene! Roy saves Deckard while dying in the rain:  
+> *"All those moments... lost in time, like tears in rain."*  
+
+**Why It's Great**:  
+- Shows humanity in an "inhuman" character  
+- Practice reading this aloud - it's emotional!  
+
+---
+
+## Part 3: Ridley Scott's Style (5 mins)  
+### **His Signature Touches**  
+- **Rainy Nights**: Like in *Gladiator* and *Alien*  
+- **Crowded Cities**: Similar to *Black Hawk Down*  
+- **Strong Women**: Rachel is like Ripley in *Alien*  
+
+**Fun Fact**:  
+The origami unicorn at the end suggests Deckard might be a replicant - Scott loves these open endings!  
+
+---
+
+## Part 4: Let's Debate! (10 mins)  
+### **Interesting Questions**  
+1. *"If you could live just 4 years but be super strong/smart, would you?"*  
+2. *"Would you want to know if you were artificial?"*  
+3. *"Is Roy a villain or just someone fighting for life?"*  
+
+### **Role-Play Fun**  
+Student: Replicant demanding longer life  
+Teacher: Scientist saying *"The light that burns twice as bright..."*  
+
+---
+
+## Vocab Made Easy  
+| Word                 | Meaning                                 | Sounds Like               |  
+|----------------------|-----------------------------------------|---------------------------|  
+| Replicant            | Artificial human                        | REP-li-cant               |  
+| Dystopia             | Bad future society                      | dis-TOE-pee-ah            |  
+| Off-world            | Space colonies                          | OFF-wurld                 |  
+| Retire (slang)       | Kill replicants                         | re-TIRE                   |  
+
+---
+
+## Pronunciation Practice  
+- **Voight-Kampff**: VOYT-kampf (like "voice" without 'ce')  
+- **Nexus-6**: NEX-us six (replicant model)  
+- **Tyrell**: tie-RELL (company name)  
+
+Try saying: *"The Nexus-6 replicants escaped from off-world colonies"*  
+
+---
+
+## Your Turn! (Homework Ideas)  
+1. **Record Roy's speech** with emotion  
+2. **Design your own replicant**: What skills would it have?  
+3. **Compare to modern tech**: Is ChatGPT like a simple replicant?  
+
+> "The light that burns twice as bright burns half as long." - Dr. Tyrell  
+> (Maybe about replicants... or about us too!)  
+
+**Next time**: Let's compare to *Blade Runner 2049* - is the sequel as good?  
