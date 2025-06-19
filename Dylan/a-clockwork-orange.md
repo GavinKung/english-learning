@@ -108,3 +108,54 @@ Student B (Priest): *"When a man cannot choose, he ceases to be a man!"*
 
 > "Is it better for a man to be bad by choice... than good by compulsion?" - Prison Chaplain  
 > (The film's central question)  
+
+--- 
+
+## Part 5: Deeper Connections & Modern Relevance (20 mins)
+
+### **Topic 1: The Burgess Connection - The Missing Final Chapter**
+
+**Background**:
+Anthony Burgess's novel had a final chapter that Kubrick **omitted** (/əˈmɪtɪd/ - 省略，删去) from his film (it was also missing from the American edition of the book until 1986). In this chapter, Alex grows older, tires of violence, and **contemplates** (/ˈkɒntəmpleɪts/ - 思忖，考虑) starting a family. He sees another youth acting as he once did and feels a sense of pity and maturity. He chooses to **renounce** (/rɪˈnaʊns/ - 宣布放弃) violence, not through conditioning, but through genuine personal growth.
+
+**Key Vocabulary**:
+| Word/Phrase | Meaning | Pronunciation |
+|---|---|---|
+| **Redemption** | The act of being saved from sin, error, or evil. (救赎) | /rɪˈdɛmpʃən/ |
+| **Ambiguous** | Open to more than one interpretation; not having one obvious meaning. (模棱两可的) | /æmˈbɪɡjuəs/ |
+| **Authorial Intent** | The meaning or interpretation of a work that the author had in mind. (作者意图) | /ɔːˈθɔːriəl ɪnˈtɛnt/ |
+| **Pessimistic** | Tending to see the worst aspect of things. (悲观的) | /ˌpɛsɪˈmɪstɪk/ |
+
+**Discussion Prompts**:
+1.  Why do you think Kubrick chose to end the film on a more **pessimistic** and **ambiguous** note, with Alex smirking, "I was cured, alright!"?
+2.  Does the inclusion of the original final chapter change the entire message of the story? How so? Does it make the story better or worse, in your opinion?
+3.  Which ending do you find more powerful or thought-provoking: the film's cynical end or the novel's hopeful one? Discuss the concept of **redemption**.
+
+### **Topic 2: Kubrick's Thematic Universe - Man vs. System**
+
+**Background**:
+A recurring theme in Kubrick's films is the struggle of the individual against a vast, **dehumanizing** (/diːˈhjuːmənaɪzɪŋ/ - 使丧失人类的), and often **incomprehensible** (/ˌɪnkɒmprɪˈhɛnsəbl/ - 难以理解的) system. We see this in *A Clockwork Orange* (Alex vs. the Government), *2001: A Space Odyssey* (Dave Bowman vs. HAL 9000), and *Dr. Strangelove* (everyone vs. nuclear annihilation protocol).
+
+**Key Vocabulary**:
+| Word/Phrase | Meaning | Pronunciation |
+|---|---|---|
+| **Futile** | Incapable of producing any useful result; pointless. (徒劳的) | /ˈfjuːtaɪl/ |
+| **Bureaucracy** | A system of government with complex rules and procedures. (官僚体制) | /bjʊəˈrɒkrəsi/ |
+| **Autonomy** | The right or condition of self-government; freedom from external control. (自主权) | /ɔːˈtɒnəmi/ |
+
+**Discussion Prompts**:
+1.  Compare Alex's struggle for **autonomy** with Dave's fight against HAL 9000 in *2001*. Are they both fighting a form of **bureaucracy** or system that has gone wrong?
+2.  Is the struggle against the system always **futile** in Kubrick's films? Does anyone ever truly "win"?
+3.  How does the visual style of *A Clockwork Orange* (the symmetrical shots, the sterile environments) contribute to this feeling of a **dehumanizing** system?
+
+---
+
+## Part 6: Wrap-up & Freestyle Conversation (5-10 mins)
+
+**Objective**:
+Use the vocabulary and concepts from today's lesson to discuss the film's legacy or your personal takeaways.
+
+**Example Starters**:
+*   "Thinking about the film's **ambiguous** ending, I feel that..."
+*   "The **juxtaposition** of violence and classical music was the most **harrowing** part for me because..."
+*   "It's interesting to compare the **dehumanizing** Ludovico Technique to modern issues like..."
