@@ -2,7 +2,7 @@
 
 ---
 
-## Part 1: The Premise - An Accidental Journey (10 mins)
+## Part 1: 88 MPH to 1955 (10 mins)
 
 **Synopsis**:
 Marty McFly (Michael J. Fox), a typical 1980s teenager, is accidentally sent back to 1955 in a time-traveling DeLorean car, invented by his eccentric scientist friend, Dr. Emmett "Doc" Brown (Christopher Lloyd). Trapped in the past, Marty's main goal is to find the younger Doc Brown to help him get back to his own time. However, things get **precarious** (/prɪˈkɛəriəs/ - 危险的，不确定的) when he inadvertently interferes with his own parents' first meeting, threatening his very existence.
@@ -17,7 +17,7 @@ Marty McFly (Michael J. Fox), a typical 1980s teenager, is accidentally sent bac
 
 ---
 
-## Part 2: The Core Conflict - Fixing the Timeline (20 mins)
+## Part 2: A Mother's Crush and a Father's Courage (20 mins)
 
 ### **Problem 1: The "Incestuous" Love Triangle**
 **What Happens**: Instead of his father, George McFly, Marty's mother, Lorraine, becomes infatuated with *him*. This creates an **Oedipal** (/ˈiːdɪpəl/ - 恋母情结的) nightmare. Marty must orchestrate a scenario for his nerdy, insecure father to win his mother's affection.
@@ -41,7 +41,7 @@ Marty McFly (Michael J. Fox), a typical 1980s teenager, is accidentally sent bac
 
 ---
 
-## Part 3: Thematic Deep Dive - Destiny vs. Choice (10 mins)
+## Part 3: "Your Future is Whatever You Make It" (10 mins)
 
 **Key Questions for Debate**:
 1.  **The Ripple Effect**: When Marty returns to 1985, his family is happier, healthier, and more successful. Did Marty have the right to change their lives, even if it was for the better? This is a classic **ethical dilemma** (/ˈɛθɪkəl daɪˈlɛmə/ - 伦理困境).
@@ -50,7 +50,7 @@ Marty McFly (Michael J. Fox), a typical 1980s teenager, is accidentally sent bac
 
 ---
 
-## Part 4: Wrap-up & Freestyle Conversation (5 mins)
+## Part 4: The Ripple Effect (5 mins)
 
 **Objective**:
 Use the vocabulary and concepts from today's lesson to discuss the film's legacy and why it remains so beloved.

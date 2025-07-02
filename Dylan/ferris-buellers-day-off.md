@@ -2,7 +2,7 @@
 
 ---
 
-## Part 1: The Premise - The Art of Skipping School (10 mins)
+## Part 1: The Art of the Day Off (10 mins)
 
 **Synopsis**:
 Ferris Bueller (Matthew Broderick), a charming and unusually clever high school senior, decides to take one last day off before graduation. With an **elaborate** (/ɪˈlæbərət/ - 精心策划的) plan, he fakes an illness, convincing his doting parents. He then “liberates” his best friend, Cameron Frye, who is genuinely sick and **neurotic** (/njʊəˈrɒtɪk/ - 神经质的), and his girlfriend, Sloane Peterson. Together, they embark on an unforgettable adventure through Chicago, all while trying to evade their suspicious principal, Ed Rooney, and Ferris's jealous sister, Jeanie.
@@ -17,7 +17,7 @@ Ferris Bueller (Matthew Broderick), a charming and unusually clever high school 
 
 ---
 
-## Part 2: Key Adventures & Character Arcs (20 mins)
+## Part 2: A Ferrari, a Parade, and a Catharsis (20 mins)
 
 ### **Adventure 1: The Liberation of Cameron**
 **What Happens**: The most crucial part of Ferris's plan is convincing the perpetually anxious Cameron to join him. Cameron's resistance stems from a deep-seated fear of his domineering father. The ultimate act of rebellion is taking his father's prized 1961 Ferrari 250 GT California Spyder.
@@ -42,7 +42,7 @@ Ferris Bueller (Matthew Broderick), a charming and unusually clever high school 
 
 ---
 
-## Part 3: The John Hughes Touch (10 mins)
+## Part 3: The Voice of a Generation (10 mins)
 
 **Director's Style**: John Hughes was the voice of a generation in the 1980s. His films, like *The Breakfast Club* and *Sixteen Candles*, are famous for treating teenage problems with sincerity and respect.
 
@@ -57,7 +57,7 @@ Ferris Bueller (Matthew Broderick), a charming and unusually clever high school 
 
 ---
 
-## Part 4: Wrap-up & Freestyle Conversation (5 mins)
+## Part 4: "Life Moves Pretty Fast..." (5 mins)
 
 **Objective**:
 Use the vocabulary and concepts from today's lesson to discuss the film's legacy and why it remains a classic.

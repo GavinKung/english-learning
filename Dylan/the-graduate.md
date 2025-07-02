@@ -2,7 +2,7 @@
 
 ---
 
-## Part 1: The Premise - Adrift in Adulthood (10 mins)
+## Part 1: "Plastics" and Other Anxieties (10 mins)
 
 **Synopsis**:
 Benjamin Braddock (Dustin Hoffman), a recent college graduate and track star, returns to his wealthy parents' home in Southern California. Despite his academic achievements, he is filled with anxiety and **alienation** (/ˌeɪliəˈneɪʃn/ - 疏离感) about his future. At his graduation party, he is cornered by his parents' friends, who offer him vapid advice, famously summarized in one word: "Plastics." Feeling lost, he is seduced by the older, sophisticated, and married Mrs. Robinson (Anne Bancroft), the wife of his father's business partner. Their aimless affair begins, setting the stage for a crisis of identity and rebellion.
@@ -17,7 +17,7 @@ Benjamin Braddock (Dustin Hoffman), a recent college graduate and track star, re
 
 ---
 
-## Part 2: The Affair & Its Aftermath (20 mins)
+## Part 2: "Mrs. Robinson, You're Trying to Seduce Me" (20 mins)
 
 ### **Scene Analysis: The Seduction**
 **What Happens**: Mrs. Robinson orchestrates a situation to be alone with Benjamin, asking him to drive her home and then insisting he come inside. Her seduction is both awkward and **predatory** (/ˈprɛdətəri/ - 掠夺性的). She is in complete control, while Benjamin is passive and flustered.
@@ -37,7 +37,7 @@ Benjamin Braddock (Dustin Hoffman), a recent college graduate and track star, re
 
 ---
 
-## Part 3: Thematic Deep Dive - The Ambiguous Escape (10 mins)
+## Part 3: The Frantic Escape to... Where? (10 mins)
 
 **The Climax: Crashing the Wedding**
 *   The final act is a frantic race against time, as Benjamin drives his car until it runs out of gas and then runs on foot to stop Elaine's wedding. He bangs on the church's glass window, screaming her name. This is the moment he finally takes decisive, albeit chaotic, action.
@@ -52,7 +52,7 @@ Benjamin Braddock (Dustin Hoffman), a recent college graduate and track star, re
 
 ---
 
-## Part 4: Wrap-up & Freestyle Conversation (5 mins)
+## Part 4: The Sound of Silence (5 mins)
 
 **Objective**:
 Use the vocabulary and concepts from today's lesson to discuss the film's lasting impact and its relevance today.
